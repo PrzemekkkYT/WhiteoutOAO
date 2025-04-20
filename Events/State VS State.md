@@ -1,3 +1,20 @@
+# Before prep
+```
+⚠ Important Reminder: Please do not use any of your valuable resources before the event starts! Save everything, including:
+	•	Speed-ups ⏳
+	•	Fiery Crystals 🔥
+	•	Food & other resources 🍖
+	•	Animal Evolution Books 📖
+	•	Stamina ⚡
+	•	Governor’s Amulets and gears
+	•	Gems for the Wheel of Fortune 💎
+	•	Hero Shards
+	•	Advanced Wild Marks 🐾
+We need to be at full strength when the battle begins! Let’s stay prepared and dominate the battlefield! 💪🔥
+```
+
+
+# Days
 ## Day 1
 ```
 ⭕SVS Preparation Day 1
